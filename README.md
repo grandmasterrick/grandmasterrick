@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @grandmasterrick
-- I’m interested in ... leaning
+- I’m interested in ... learning
 - I’m currently learning ... Management Information Systems
 - I’m looking to collaborate on ... Fun projects
 - How to reach me ... mail@adamricketts.com
